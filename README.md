@@ -1,0 +1,1 @@
+# evakuator-Astana-24-7
